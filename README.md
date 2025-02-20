@@ -40,8 +40,13 @@
 **☆⋆ <ins> KINLIST (MAY CHANGE) </ins> ⋆☆**
 
 💤 John Egbert (Homestuck)
+
 💤 Jake English (Homestuck)
+
 💤 Rose Lalonde (Homestuck)
+
 💤 Dirk Strider (Homestuck)
+
 💤 Lil Hal (Homestuck)
+
 💤 (+ more i forgot and will add later)
