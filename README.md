@@ -27,7 +27,13 @@
 
 *ੈ✩‧*˚༺☆༻*ੈ✩‧*˚
 
-💤 anyone under 13, creeps, pro/dark shippers.
+💤 anyone under 13.
+
+💤 creeps. 
+
+💤 pro/dark shippers.
+
+💤 mean/hateful people.
 
  **☆⋆ <ins> EXT </ins> ⋆☆**
 
