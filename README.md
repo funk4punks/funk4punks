@@ -39,6 +39,8 @@
 
 **☆⋆ <ins> KINLIST (MAY CHANGE) </ins> ⋆☆**
 
+*ੈ✩‧*˚༺☆༻*ੈ✩‧*˚
+
 💤 John Egbert (Homestuck)
 
 💤 Jake English (Homestuck)
