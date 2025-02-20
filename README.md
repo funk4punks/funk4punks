@@ -19,6 +19,8 @@
 
 💤 i rarely interact first but feel free to appraoch me! 
 
+💤 im usually pretty zoomed in if im with a friend so i may not see you.
+
 💤 im really prone to passing out from exhaustion when its night time, so if im sleeping on pt that usually means i passed out and will not respond. 
 
 💤 i block and hide freely.
