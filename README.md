@@ -6,7 +6,8 @@
 
 *ੈ✩‧*˚༺☆༻*ੈ✩‧*˚
 
-![1000000177](https://github.com/user-attachments/assets/11f26a35-0c9a-4c34-9cda-060cf19121ad)
+![1000047774](https://github.com/user-attachments/assets/6d3c50a3-2e20-46fd-b98c-f3f9c0ddd869)
+
 
 💤 im Felix and i only use he/him. i love pony town, roblox, minecraft + a bunch of other video games!
 
