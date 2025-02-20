@@ -37,4 +37,11 @@
 
 ![1000047776](https://github.com/user-attachments/assets/882e7253-695c-4899-9b24-19a6a7c534ef)
 
+**☆⋆ <ins> KINLIST (MAY CHANGE) </ins> ⋆☆**
 
+💤 John Egbert (Homestuck)
+💤 Jake English (Homestuck)
+💤 Rose Lalonde (Homestuck)
+💤 Dirk Strider (Homestuck)
+💤 Lil Hal (Homestuck)
+💤 (+ more i forgot and will add later)
