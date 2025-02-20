@@ -1,8 +1,8 @@
-## ☆⋆ Nice docs, baby! ⋆☆
+## **☆⋆ Nice docs, baby! ⋆☆**
 
 ![1000000173](https://github.com/user-attachments/assets/95cca0ea-082a-4010-9305-b470eb21cb95)
 
-** ⋆☆ ABOUT ME ☆⋆ **
+**⋆☆ ABOUT ME ☆⋆**
 
 *ੈ✩‧*˚༺☆༻*ੈ✩‧*˚
 
@@ -11,7 +11,7 @@
 
 💤 im Felix and i only use he/him. i love pony town, roblox, minecraft + a bunch of other video games!
 
-** ☆⋆ BEFORE YOU INTERACT / BOUNDARIES ⋆☆ **
+**☆⋆ BEFORE YOU INTERACT / BOUNDARIES ⋆☆**
 
 *ੈ✩‧*˚༺☆༻*ੈ✩‧*˚
 
@@ -23,13 +23,13 @@
 
 💤 i block and hide freely.
 
-** ⋆☆ DO NOT INTERACT ☆⋆ **
+**⋆☆ DO NOT INTERACT ☆⋆**
 
 *ੈ✩‧*˚༺☆༻*ੈ✩‧*˚
 
 💤 anyone under 13, creeps, pro/dark shippers.
 
-** ☆⋆ EXT ⋆☆ **
+ **☆⋆ EXT ⋆☆**
 
 *ੈ✩‧*˚༺☆༻*ੈ✩‧*˚
 
