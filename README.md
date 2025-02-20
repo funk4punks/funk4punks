@@ -1,4 +1,4 @@
-## Hi there 👋
+## Read before interacting 
 
 <!--
 **funk4punks/funk4punks** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
