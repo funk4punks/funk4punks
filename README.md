@@ -17,7 +17,7 @@
 
 💤 im a minor. dont be creepy.
 
-💤 i rarely interact first but feel free to appraoch me! 
+💤 i rarely interact first but feel free to approach me! 
 
 💤 i dont accept random friend requests and i will not accept friend requests, unless i add you first.
 
