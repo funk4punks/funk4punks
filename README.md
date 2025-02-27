@@ -61,4 +61,8 @@
 
 💤 Lil Hal (Homestuck)
 
+💤 Scout (Team Fortress 2)
+
+💤 Wheatley (Portal 2)
+
 💤 (+ more i forgot and will add later)
