@@ -15,7 +15,7 @@
 
 *ੈ✩‧*˚༺☆༻*ੈ✩‧*˚
 
-💤 im a minor. dont be creepy.
+💤 im 16 dont be creepy.
 
 💤 i rarely interact first but feel free to approach me! 
 
