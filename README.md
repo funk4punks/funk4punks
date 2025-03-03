@@ -45,7 +45,10 @@
 
 💤
 
-![1000047776](https://github.com/user-attachments/assets/882e7253-695c-4899-9b24-19a6a7c534ef)
+![1000048102](https://github.com/user-attachments/assets/70f41403-db2b-46e6-a1e4-dfdddfc2e5d1)
+![1000048101](https://github.com/user-attachments/assets/0bbfd4b0-3db2-48ef-8791-38ad992c19b6)
+
+💤 me and my bro <3 /p
 
 **☆⋆ <ins> KINLIST (MAY CHANGE) </ins> ⋆☆**
 
@@ -64,5 +67,7 @@
 💤 Scout (Team Fortress 2)
 
 💤 Wheatley (Portal 2)
+
+💤 Astro (Dandys World)
 
 💤 (+ more i forgot and will add later)
