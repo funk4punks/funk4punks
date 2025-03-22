@@ -48,11 +48,11 @@
 
 ■ anyone under 13.
 
-■ creeps. 
+● creeps. 
 
 ■ pro/dark shippers.
 
-■ mean/hateful people.
+● mean/hateful people.
 
  **⋆ <ins> EXT </ins> ⋆**
 
