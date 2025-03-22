@@ -40,7 +40,9 @@
 
 ■ im really prone to passing out from exhaustion when its night time, so if im sleeping on pt that usually means i passed out and will not respond. 
 
-● i block and hide freely.
+● i have a horrible memory but i do my best to remember things.
+
+■ i block and hide freely.
 
 **⋆ <ins> DO NOT INTERACT </ins> ⋆**
 
@@ -85,3 +87,12 @@
 ■ Astro (Dandys World)
 
 (+ more i forgot and will add later)
+
+
+**⋆ <ins> FANDOM RELATED GIFS </ins> ⋆**
+
+*ੈ✩‧*˚༺☆༻*ੈ✩‧*˚
+![1000000253](https://github.com/user-attachments/assets/b376c5cd-1960-4571-8cff-4daddb9fe3ff)
+![1000000252](https://github.com/user-attachments/assets/4dec0059-2107-4d09-b2b0-110256b17f1d)
+
+
