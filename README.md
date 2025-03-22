@@ -6,7 +6,7 @@
 
 *ੈ✩‧*˚༺☆༻*ੈ✩‧*˚
 
-![1000000250](https://github.com/user-attachments/assets/c492f6a8-9810-4953-a9e2-dd351a209938) ![1000000251](https://github.com/user-attachments/assets/86bac179-f44b-4667-bbe6-c8d885b8535d)
+![1000000251](https://github.com/user-attachments/assets/86bac179-f44b-4667-bbe6-c8d885b8535d)
 
 
 
