@@ -6,12 +6,12 @@
 
 *ੈ✩‧*˚༺☆༻*ੈ✩‧*˚
 
+
+☆ im Felix and i only use he/him. i love pony town, roblox, minecraft + a bunch of other video games! ☆
+
 ![1000000251](https://github.com/user-attachments/assets/86bac179-f44b-4667-bbe6-c8d885b8535d)
 
 
-
-
-☆ im Felix and i only use he/him. i love pony town, roblox, minecraft + a bunch of other video games! ☆
 
 **⋆ <ins> CURRENT HYPERFIXATIONS  </ins> ⋆**
 
