@@ -90,6 +90,8 @@
 
 ● 007n7 (Forsaken)
 
+■ Mafioso (Forsaken)
+
 (+ more i forgot and will add later)
 
 
