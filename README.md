@@ -44,6 +44,8 @@
 
 ■ i block and hide freely.
 
+● soemtimes i have "crash outs" or well in more specific terms mental breakdowns where i unadd basically everyone. (its an unhealthy coping mechanism to deal with isolation)
+
 **⋆ <ins> DO NOT INTERACT </ins> ⋆**
 
 *ੈ✩‧*˚༺☆༻*ੈ✩‧*˚
@@ -85,6 +87,8 @@
 ● Wheatley (Portal 2)
 
 ■ Astro (Dandys World)
+
+● 007n7 (Forsaken)
 
 (+ more i forgot and will add later)
 
