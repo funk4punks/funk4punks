@@ -25,6 +25,8 @@
 
 (+ probably a few more but those are the ones i can remember/are most intsense)
 
+![1000050334](https://github.com/user-attachments/assets/8cfa64b0-a56e-4ec7-84af-12195233950a)
+
 
 **⋆ <ins> BEFORE YOU INTERACT | BOUNDARIES </ins> ⋆**
 
