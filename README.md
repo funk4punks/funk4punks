@@ -48,6 +48,8 @@
 
 ● soemtimes i have "crash outs" or well in more specific terms mental breakdowns where i unadd basically everyone. (its an unhealthy coping mechanism to deal with isolation)
 
+![1000050358](https://github.com/user-attachments/assets/6f30e575-0aed-4863-aba5-bf58454e0c2c)
+
 **⋆ <ins> DO NOT INTERACT </ins> ⋆**
 
 *ੈ✩‧*˚༺☆༻*ੈ✩‧*˚
