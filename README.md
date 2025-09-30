@@ -6,4 +6,7 @@
 
 $\color{#FDBF20}{\textsf{ Hi im Felix and uhm yeah wip. }}$
 
+<img width="74" height="122" alt="1000057869" src="https://github.com/user-attachments/assets/b62bc2a8-6e43-40bc-843e-3d9bc9323f0d" />
+
+
 </div>
