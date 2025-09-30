@@ -11,6 +11,6 @@ $\color{#FDBF20}{\textsf{ Hi im Felix and uhm yeah wip. }}$
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=17&pause=1000&color=1F9400&center=true&width=435&lines=Wag+like+a+little+weiner+dog)](https://git.io/typing-svg)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&pause=1000&color=1F9400&center=true&width=435&lines=for+Andrew+in+drag!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&pause=1000&color=1F9400&center=true&width=435&lines=for+andrew+in+drag!)](https://git.io/typing-svg)
 
 </div>
