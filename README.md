@@ -5,7 +5,7 @@
 
 [<img width="300" height="300" alt="Untitled187-20250929123655" src="https://github.com/user-attachments/assets/0b6ebd80-5845-4421-9c17-f10c25fa7251" />](https://philotheus.straw.page/)
 
-$\color{#FDBF20}{\textsf{ Hi im Felix and uhm yeah wip. }}$
+$\color{#FDBF20}{\textsf{ Hi im Felix and im always looking to meet new people and make friends :] }}$
 
 <img width="74" height="122" alt="1000057869" src="https://github.com/user-attachments/assets/b62bc2a8-6e43-40bc-843e-3d9bc9323f0d" />
 
